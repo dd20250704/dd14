@@ -19,6 +19,6 @@ SEO方面，合理布局“日本AV免费”关键词，结合影片标签和用
 
 总结，打造资源丰富、播放流畅、安全合规且SEO优化完善的网站，才能稳居“日本AV免费”关键词第一，赢得用户和搜索引擎的认可。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd14 ）</span>
 
 
